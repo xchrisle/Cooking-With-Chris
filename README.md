@@ -1,25 +1,26 @@
-# Cooking-With-Chris
-Dishes I'm going to make every weekend (mostly Sundays) in 2020
+# Cooking With Chris
+
+As part of my 2020 new years resoluction, I'm going to make a unique cultural dish every weekend.
 
 Short months (4 Sundays) will have a country of the month, where I'll make 3 savoury dishes, and 1 sweet dish.
 
 Longer months (5 Sundays) will be comprised of multiple countries and I'll make the highlight dishes 
 
-## 52 Sundays: 
-Jan - Italy
-Feb - Vietnam
-Mar - Spain + Greece
-Apr - India
-May - Phillipines + Nepal
-Jun - France
-Jul - Japan 
-Aug - Thailand + Malaysia
-Sep - Australia
-Oct - Korea
-Nov - USA + Mexico
-Dec - China
+## 52 Sundays
+* Jan - Italy
+* Feb - Vietnam
+* Mar - Spain + Greece
+* Apr - India
+* May - Phillipines + TBC + Nepal
+* Jun - France
+* Jul - Japan 
+* Aug - Thailand + Malaysia
+* Sep - Australia
+* Oct - Korea
+* Nov - USA + Mexico
+* Dec - China
 
-List is not 100% finished. I will change it throughout the year
+List is not 100% set. I will change it throughout the year
 
 ## January: Italy 
 * Spaghetti
@@ -47,7 +48,7 @@ List is not 100% finished. I will change it throughout the year
 * 
 
 
-## May: Philippines + Nepal 
+## May: Philippines + TBC + Nepal 
 * Phillipines: Lechon (I want to, but like how)
 * Nepal: Momo
 * 
@@ -69,7 +70,7 @@ List is not 100% finished. I will change it throughout the year
 ## August: Thailand + Malaysia
 * Malaysia: Nasi Lemak
 * Thailand: Pad Thai
-* 
+* Laksa
 * 
 * 
 
