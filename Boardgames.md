@@ -44,6 +44,7 @@ Boardgames I have pledged to on Kickstarter
 
 ## 1. [The Great Wall](https://boardgamegeek.com/boardgame/292375/great-wall)
 [Kickstarter](https://www.kickstarter.com/projects/awakenrealms/great-wall-board-game)
+
 ![](https://cf.geekdo-images.com/imagepage/img/yxa7Kq0iEqwlozLLlaE4XeGFxCE=/fit-in/900x600/filters:no_upscale()/pic5024225.jpg)
 
 # Backlog
