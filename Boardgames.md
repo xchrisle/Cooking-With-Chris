@@ -79,3 +79,13 @@ Boardgames that I might buy when there's a sale
 
 ## 7. [Suburbia](https://boardgamegeek.com/boardgame/123260/suburbia)
 ![](https://cf.geekdo-images.com/imagepage/img/V54Z9j1TvXZORDQh1Z8EBjx1m8A=/fit-in/900x600/filters:no_upscale()/pic1355470.jpg)
+
+## 8. [Love Letter](https://boardgamegeek.com/boardgame/129622/love-letter)
+Note: I don't want want to buy this, I would rather make my own with my own theme
+
+![](https://cf.geekdo-images.com/imagepage/img/iMDpkvLdVkOAdcTyQbGhI9xcarg=/fit-in/900x600/filters:no_upscale()/pic1512855.jpg)
+
+## 9. [Coup](https://boardgamegeek.com/boardgame/131357/coup)
+Note: I don't want want to buy this, I would rather make my own with my own theme
+
+![](https://cf.geekdo-images.com/imagepage/img/4Vdrw-K6q2oMldfMIVsQUEAUy80=/fit-in/900x600/filters:no_upscale()/pic1759020.jpg)
