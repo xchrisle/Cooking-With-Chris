@@ -47,7 +47,7 @@ Boardgames I have pledged to on Kickstarter
 
 ![](https://cf.geekdo-images.com/imagepage/img/yxa7Kq0iEqwlozLLlaE4XeGFxCE=/fit-in/900x600/filters:no_upscale()/pic5024225.jpg)
 
-# Backlog
+# Backlog (To Buy)
 
 Boardgames that I might buy when there's a sale 
 
@@ -80,12 +80,14 @@ Boardgames that I might buy when there's a sale
 ## 7. [Suburbia](https://boardgamegeek.com/boardgame/123260/suburbia)
 ![](https://cf.geekdo-images.com/imagepage/img/V54Z9j1TvXZORDQh1Z8EBjx1m8A=/fit-in/900x600/filters:no_upscale()/pic1355470.jpg)
 
-## 8. [Love Letter](https://boardgamegeek.com/boardgame/129622/love-letter)
-Note: I don't want want to buy this, I would rather make my own with my own theme
+## 8. [Magic Maze](https://boardgamegeek.com/boardgame/209778/magic-maze)
+![](https://cf.geekdo-images.com/imagepage/img/Fc81CnucONMFhIvS3mYA8R9_dLw=/fit-in/900x600/filters:no_upscale()/pic3613651.jpg)
+
+# Backlog (To Make)
+## 1. [Love Letter](https://boardgamegeek.com/boardgame/129622/love-letter)
 
 ![](https://cf.geekdo-images.com/imagepage/img/iMDpkvLdVkOAdcTyQbGhI9xcarg=/fit-in/900x600/filters:no_upscale()/pic1512855.jpg)
 
-## 9. [Coup](https://boardgamegeek.com/boardgame/131357/coup)
-Note: I don't want want to buy this, I would rather make my own with my own theme
+## 2. [Coup](https://boardgamegeek.com/boardgame/131357/coup)
 
 ![](https://cf.geekdo-images.com/imagepage/img/4Vdrw-K6q2oMldfMIVsQUEAUy80=/fit-in/900x600/filters:no_upscale()/pic1759020.jpg)
